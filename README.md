@@ -1,1 +1,0 @@
-# ETYHIRAJ-STORE
